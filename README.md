@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @FBagdeli
-- 👀 I’m interested in Playing Badminton , wathing movies ,making BBQ and travling 
+- 👀 I’m interested in Playing Badminton ,Reading Books, Watching movies ,Making BBQ and tTravling 
 - 🌱 I’m currently learning Mobile App Development for Android with Kotlin
 - 💞️ I’m looking to collaborate on First companys that had remote Work or companys are in netherlands
 - 📫 How to reach me :f.bagdeli13@outlook.com , Phone No : +31639296000 , WhatsApp : +3139296000
